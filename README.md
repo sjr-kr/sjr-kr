@@ -6,7 +6,7 @@
 --->
 - 📫 How to reach me:<br/>
   Instagram: @sjr_kr<br/>
-  KakaoTalk: sjsj7774<br/>
+  KakaoTalk: sj51400<br/>
   Telephone: +82 10 9379 7774<br/>
 
 <!---
